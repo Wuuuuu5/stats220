@@ -12,6 +12,7 @@ This is my repo for **STATS 220**.
 1.  *Progarmming*
 2.  *Badminton*
 3.  *Software Development*
+4.  *Gaming*
 
 This is the University of Auckland website here:
 [University of Auckland](https://www.auckland.ac.nz)
