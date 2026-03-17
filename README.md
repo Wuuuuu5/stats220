@@ -20,4 +20,4 @@ A meme that captures how I currently feel about my university studies is
 ![](https://c.tenor.com/8druEACXtX8AAAAd/tenor.gif)
 
 Another mem that I like
-![]([https://tenor.com/view/meme-photo-gif-12839979211282753097](https://media1.tenor.com/m/tOIJT1iCKW4AAAAd/dumb-stupid-patrick.gif))
+![](https://media1.tenor.com/m/tOIJT1iCKW4AAAAd/dumb-stupid-patrick.gif)
