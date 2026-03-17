@@ -19,5 +19,5 @@ This is the University of Auckland website here:
 A meme that captures how I currently feel about my university studies is<br>
 ![](https://c.tenor.com/8druEACXtX8AAAAd/tenor.gif)
 
-Another mem that I like<br>
+Another meme that I like<br>
 ![](https://media1.tenor.com/m/tOIJT1iCKW4AAAAd/dumb-stupid-patrick.gif)
